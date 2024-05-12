@@ -1,2 +1,0 @@
-# zauberstern.github.io
-Portfolio
